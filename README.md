@@ -15,3 +15,7 @@ Thank you for your understanding and consideration.
 
 Best regards,
 Dandy Firmansyah
+
+
+Hi Dandy
+Please connect me at +91 9451309100 (whatsapp)
